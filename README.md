@@ -1,1 +1,1 @@
-Python basics class pratical session were available heare
+Python basics class pratical workouts are available heare
